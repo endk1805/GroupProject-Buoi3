@@ -1,0 +1,1 @@
+Tổng kết ngắn
